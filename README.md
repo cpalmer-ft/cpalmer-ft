@@ -1,4 +1,1 @@
-# cpalmer-ft
-# cpalmer-ft
-# cpalmer-ft
-# cpalmer-ft
+### CHRIS PALMER - FINANCIAL TIMES
